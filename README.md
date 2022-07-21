@@ -11,4 +11,5 @@ junhao.zhn@student.mahidol.ac.th
 Kunming,China
 
 ## His Favorite Activities
-* Flirt with girls
+* Fighting with others
+
