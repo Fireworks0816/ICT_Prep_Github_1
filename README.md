@@ -9,3 +9,6 @@ junhao.zhn@student.mahidol.ac.th
 
 ## My hometown
 Kunming,China
+
+## His Favorite Activities
+* Flirt with girls
